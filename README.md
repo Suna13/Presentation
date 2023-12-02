@@ -1,4 +1,5 @@
-![Alt text](image-17-08-22-06-15_(1)-pOgVPuG_A-transformed.jpeg)
+![83E4D293-075E-4582-BBC5-BDE9D7CA6373](https://github.com/Suna13/Presentation/assets/135718206/7c1ad05c-357e-4f80-ae58-afc54e714809)
+
 
 # Сулыма Анастасия Николаевна
 
